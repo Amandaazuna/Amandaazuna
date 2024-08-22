@@ -5,12 +5,11 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
+- 🔭 I’m currently working on , Nada
+- 🌱 I’m currently learning , Nada
+- 👯 I’m looking to collaborate on, nada
+- 🤔 I’m looking for help with 
+- 💬 Ask me about , 
 - 📫 How to reach me: amanda.azuna@escola.pr.gov.br
 - 😄 Pronouns:Ela/Dela
-- ⚡ Fun fact: I love you stray kids, im stay
--->
+- ⚡ Fun fact: eu amo skz
